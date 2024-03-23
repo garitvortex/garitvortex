@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on personal project<br>👯 I'm looking to collaborate for increasing opportunities to grow<br>🌱 I’m currently sudying on High School<br>⚡ Fun fact that I overthink most of the times 
+🔭 I’m currently working on personal project<br>👯 I'm looking to collaborate for increasing opportunities to grow<br>🌱 I’m currently sudying on High School<br>⚡ Animal lovers
 
 
 ## 🌐 Socials:
